@@ -2,8 +2,8 @@
 - 🌱 Estudande da 1º série.
 - 🤔 Preciso de ajuda para saber programar!
 - 💬 Não me pergunte nada!
-- 📫 amandajunkes20@gmail.com // @amanda20_jks 
-- 😄 Pronomes: ela/dela.
+- 📫 [email](amandajunkes20@gmail.com)
+- 😄 @amanda20_jks
 
 
 
