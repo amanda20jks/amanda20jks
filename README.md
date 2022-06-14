@@ -3,7 +3,7 @@
 - 🤔 Preciso de ajuda para saber programar!
 - 💬 Não me pergunte nada!
 - 📫 [email](amandajunkes20@gmail.com)
-- 😄 @amanda20_jks
+- 😄 @amanda.jks
 
 
 
